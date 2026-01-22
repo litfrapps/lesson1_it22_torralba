@@ -1,1 +1,1 @@
-# gwapo ko kael
+# gwapo ko kael by lagnada
